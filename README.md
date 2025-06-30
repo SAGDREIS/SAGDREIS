@@ -1,4 +1,5 @@
-We hold successful events for Individuals, Companies and Institutions of the most varied events: Meetings, Conferences and Trainings, Christmas Parties or even Birthdays – we will help you develop simple strategies and dynamics to make your Event a success! (351)912927462 SONIA APARECIDA GONÇALVES DOS REIS- 👋 Hi, I’m @SAGDREIS
 
+Smartphone Motorola Edge 50 5G 
+256GB 24GB (12GB RAM + 12GB RAM Boost) 50MP Sony Camera Moto AI Ultrarresistencia militar - Grey - Vegan Suede 351 914162674
 
 
